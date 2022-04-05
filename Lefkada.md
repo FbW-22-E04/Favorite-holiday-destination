@@ -5,3 +5,13 @@ Die Insel Lefkas gehört zu den Ionischen Inseln in Griechenland und wird auf Gr
 Auf Lefkas kann man seinen Urlaub in der Sonne und am Meer richtig genießen und erlebt in den Städten und Dörfern noch das traditionell griechische Flair idyllischer Bergdörfer, schroff abfallender Steilküsten und feinen Sandstränden am Azurblauen Meer, das für Familien, Genießer und Pärchen gleichermaßen anziehend wirkt.
 
 ![Lefkada](https://www.lefkas-urlaub.com/wp-content/uploads/Lefkas-300x221.jpg)
+
+
+## Food to try
+
+The seafood in Lefkada is always worth trying.
+
+
+### Special memories
+
+The wonderful beaches are all worth trying.
